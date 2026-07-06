@@ -1,4 +1,4 @@
-# 
+# Sécurisé GlassWire plugins pour Mac OS | Officiel GlassWire plugins pour PC Windows. Avec remplissage automatique et détection d'intrusion — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
